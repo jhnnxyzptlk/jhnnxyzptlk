@@ -1,6 +1,5 @@
 # Hello, I'm Johann 
 
-Autodidact || Polymath
 
 #### 🔭 Things I am currently working on
 
