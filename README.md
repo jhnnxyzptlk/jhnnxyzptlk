@@ -25,7 +25,7 @@
 - Energy
 
 #### 🚀 Connect with me:
-![Twitter Follow](https://img.shields.io/twitter/follow/jhnnxyzptlk?style=social)
+TO DO
 
 
 <a href="https://linktr.ee/Johann_augustine"><img align="left" alt="Johann linktree" width="22px" src="https://www.flaticon.com/svg/static/icons/svg/41/41991.svg"/></a>
